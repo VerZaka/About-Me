@@ -3,6 +3,8 @@
 **Вероника Закревская**
 
 
+![Image alt](https://github.com/VerZaka/About-Me/blob/main/IMG_20220915_071746-01.jpeg)
+
 Проживаю: 
 
 г. Санкт-Петербург
