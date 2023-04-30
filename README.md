@@ -2,7 +2,7 @@
 
 **Вероника Закревская**
 
-![Image alt](MG_20220915_071746-01.jpeg)
+![Image alt](C:\Users\User\Desktop\Me)
 
 Проживаю: 
 
